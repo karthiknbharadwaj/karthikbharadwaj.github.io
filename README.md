@@ -1,1 +1,1 @@
-# karthikbharadwaj.github.io - HelloWorld
+# karthikbharadwaj.github.io
